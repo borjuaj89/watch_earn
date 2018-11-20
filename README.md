@@ -1,2 +1,4 @@
 # watch_earn
-Script bot apk watch &amp; earn limid 1k poin
+update script apk watch & earn
+Jedi gunakanlah dengan bijak
+
